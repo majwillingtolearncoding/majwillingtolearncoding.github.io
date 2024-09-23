@@ -1,1 +1,1 @@
-# majwillingtolearncoding.github.io
+# majwillingtolearncoding
